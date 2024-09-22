@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Technologist at Hamina Wireless
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Father to two ‘lively’ boys, Husband to one understanding wife.
